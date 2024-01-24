@@ -1,0 +1,1 @@
+Esse repositório destaca a evolução da minha história acadêmica ao longo dos anos, desde sua fundação até seu papel na promoção de práticas de desenvolvimento colaborativo e educação na comunidade de tecnologia. 
